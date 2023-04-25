@@ -13,5 +13,7 @@ I just wanna spend more time with u 👉🏼👈🏼
 
 Because i only have u 👀
  
-Im sorry for everything, i love u🫶🏼
+Im sorry for everything, can u forgive me
+
+i love u🫶🏼
 
